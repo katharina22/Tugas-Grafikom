@@ -1,0 +1,2 @@
+# Tugas-Grafikom
+TUGAS 1 GRAFIKA KOMPUTER
